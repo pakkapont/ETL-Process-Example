@@ -24,4 +24,4 @@
     3. Where the Crawdads Sing
     4. Becoming
     5. Harry Potter and the Deathly Hallows, Book 7
-- ประเภทของหนังสือที่ขายดีที่สุดคือ Literature an
+- ประเภทของหนังสือที่ขายดีที่สุดคือ Literature and Fiction
